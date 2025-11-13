@@ -7,10 +7,10 @@
 <p align="center">
 <img width=540 height=6 src="https://github.com/user-attachments/assets/53fa9cea-e091-45e6-95d9-a0373590fea9"/>
 <p align="center">
-◟ ͜𓏼˚̣̣̣◟ <code style="color : lightskyblue">𝙰𝚉𝙼𝚄𝚁𝙴𝙻</code> ֺ ໒꒱۪
+◟ ͜𓏼˚̣̣̣◟ # <code style="color : lightskyblue">𝙰𝚉𝙼𝚄𝚁𝙴𝙻</code> ֺ ໒꒱۪
 </p>
 <p align=center>
-𝕀𝕊ℂ𝔸ℝ𝕀𝕆𝕋-𝕏𝕀𝕀𝕀
+
 </p>
 <p align=center>
 she ◞𓈒  ݂ ✟ her 𓏲 ˚¦ ͜͝ | ͜͝ . 
