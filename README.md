@@ -35,3 +35,6 @@ she ◞𓈒  ݂ ✟ her 𓏲 ˚¦ ͜͝ | ͜͝ .
 <img width=540 height=6 src="https://github.com/user-attachments/assets/53fa9cea-e091-45e6-95d9-a0373590fea9"/>
     <br>
     <br>
+    <p align="center">
+  <img src="https://komarev.com/ghpvc/?username=johndoe&color=115083" alt="Profile Views" />
+</p>
