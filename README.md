@@ -36,5 +36,5 @@ she ◞𓈒  ݂ ✟ her 𓏲 ˚¦ ͜͝ | ͜͝ .
     <br>
     <br>
     <p align="center">
-<img src="https://komarev.com/ghpvc/?username=johndoe&label=࣪%20ִֶָ'†.&color=212830&v=5" />
+<img src="https://komarev.com/ghpvc/?username=johndoe&label=࣪%20ִֶָ'†.&color=212830&v=233" />
 </p>
