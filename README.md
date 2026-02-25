@@ -22,7 +22,12 @@ she ◞𓈒  ݂ ✟ her 𓏲 ˚¦ ͜͝ | ͜͝ .
 <p align=center>
 ˚̣̣꒰ ͜͝ ݃ ݁ ͜͝ 𓐇 ͡  chi̲n̲a̲ ⁠ֺ  🌀 2.24
 </p>
+<div align="center">
 
+<a href="https://42mur3l.straw.page">strawpage</a> |
+<a href="https://42md0er.atabook.org">atabook</a>
+
+</div>
 <p align="center">
 <img width=540 height=6 src="https://github.com/user-attachments/assets/53fa9cea-e091-45e6-95d9-a0373590fea9"/>
 <p align='center'> 
