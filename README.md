@@ -3,7 +3,7 @@
 </p>
 
 <p align=center>
-<img src="https://raw.githubusercontent.com/donnan34/1/023650537cf95f62336f315cdec3571099799b3f/alexander-ezgif.com-effects.gif"/> 
+<img src="https://raw.githubusercontent.com/donnan34/1/be8ec44733484622debe0945cf7cc942387f9e13/alexan111der-ezgif.gif"/> 
 </p>
 <p align='center'> 
   ゛<code style="color : lightskyblue">𝑨𝒔𝒉𝒆𝒔 𝑡𝑜 𝑎𝑠ℎ𝑒𝑠, 𝐷𝑢𝑠𝑡 𝑡𝑜 𝒅𝒖𝒔𝒕.</code> 〃
