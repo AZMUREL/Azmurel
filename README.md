@@ -17,7 +17,7 @@
 
 </p>
 <p align=center>
-she ◞𓈒 ݂ her 𓏲 ˚¦ ͜͝ | ͜͝ . 
+she◞𓈒 ݂her 𓏲 ˚¦ ͜͝ | ͜͝ . 
 </p>
 <p align=center>
 ˚̣̣꒰ ͜͝ ݃ ݁ ͜͝ 𓐇 ͡  chi̲n̲a̲ ⁠ֺ  🌀 2.24
