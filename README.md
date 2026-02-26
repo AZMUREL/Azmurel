@@ -1,5 +1,5 @@
 <p align=center>
-<img width=540 height=6 src="https://raw.githubusercontent.com/donnan34/1/3cf9f1580e0b3c11cea9ba1d1f9d8bc3b29af6ca/bluedivider.gif"/>
+<img width=540 height=6 src="https://github.com/user-attachments/assets/843fbbd4-7216-4588-b2c9-4f9ab322475b"/>
 </p>
 
 <p align=center>
