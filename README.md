@@ -30,6 +30,8 @@
 
 </div>
 
+<br>
+
 <div align="center">
   <a href="https://42mur3l.straw.page">〔strawpage〕</a> ✟ 
   <a href="https://42md0er.atabook.org">〔atabook〕</a> 
