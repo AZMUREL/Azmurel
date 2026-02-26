@@ -29,7 +29,6 @@
 ˚̣̣꒰ ͜͝ ݃ ݁ ͜͝ 𓐇 ͡  $\color{#0482EF}{\text{2.24}}$ ⁠ֺ 🌀 $\color{#0482EF}{\text{china}}$
 
 </div>
-<br>
 <div align="center">
   <a href="https://42mur3l.straw.page">〔strawpage〕</a> ✟ 
   <a href="https://42md0er.atabook.org">〔atabook〕</a> 
