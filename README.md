@@ -21,7 +21,7 @@
 </div>
 
 <p align="center">
-  👓◞𓈒 ݂008 𓏲 ˚¦ ͜͝ | ͜͝ . 
+  👓 ◞𓈒  ݂008  𓏲  ˚¦ ͜͝ | ͜͝ . 
 </p>
 
 <div align="center">
