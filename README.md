@@ -3,13 +3,13 @@
 </p>
 
 <p align=center>
-<img src="https://raw.githubusercontent.com/donnan34/1/64cc4e5254ade0c9de1894c167e5716b5b45b8bf/anderson-hellsing11-ezgif-ezgif.com-effects.gif"/> 
+<img src="https://github.com/user-attachments/assets/86f561e2-6c3c-497e-acb9-06ed5fdefc97"/> 
 </p>
 <p align='center'> 
   ゛<code style="color : lightskyblue">𝑨𝒔𝒉𝒆𝒔 𝑡𝑜 𝑎𝑠ℎ𝑒𝑠, 𝐷𝑢𝑠𝑡 𝑡𝑜 𝒅𝒖𝒔𝒕.</code> 〃
 </p>
 <p align="center">
-<img width=540 height=6 src="https://github.com/user-attachments/assets/53fa9cea-e091-45e6-95d9-a0373590fea9"/>
+<img width=540 height=6 src="https://github.com/user-attachments/assets/843fbbd4-7216-4588-b2c9-4f9ab322475b"/>
 <p align="center">
 ◟ ͜𓏼˚̣̣̣◟  『<code style="color : lightskyblue">𝙰𝚉𝙼𝚄𝚁𝙴𝙻</code>』 ֺ ໒꒱۪
 </p>
@@ -29,15 +29,15 @@ she◞𓈒 ݂her 𓏲 ˚¦ ͜͝ | ͜͝ .
 
 </div>
 <p align="center">
-<img width=540 height=6 src="https://github.com/user-attachments/assets/53fa9cea-e091-45e6-95d9-a0373590fea9"/>
+<img width=540 height=6 src="https://github.com/user-attachments/assets/843fbbd4-7216-4588-b2c9-4f9ab322475b"/>
 <p align='center'> 
   ゛<code style="color : lightskyblue">𝑊𝑒 𝑎𝑟𝑒 𝑛𝑜𝑡ℎ𝑖𝑛𝑔, 𝑏𝑢𝑡 𝑑𝑢𝑠𝑡 𝑎𝑛𝑑 𝑡𝑜 𝑑𝑢𝑠𝑡 𝑤𝑒 𝑠ℎ𝑎𝑙𝑙 𝑟𝑒𝑡𝑢𝑟𝑛. 𝐴𝑚𝑒𝑛.</code> 〃
   <br>
   <br>
-<img width=500 height=281 src="https://raw.githubusercontent.com/donnan34/1/0b7a5d51aca6d34caeee0f7027c032c955eb9d22/hellsing-ultimate-alexander-anders1on-ezgif.gif"/>
+<img width=500 height=281 src="https://github.com/user-attachments/assets/db07571d-afab-4629-a7a1-add53e2a8098"/>
 <p align="center">
   <p align="center">
-<img width=540 height=6 src="https://raw.githubusercontent.com/donnan34/1/3cf9f1580e0b3c11cea9ba1d1f9d8bc3b29af6ca/bluedivider.gif"/>
+<img width=540 height=6 src="https://github.com/user-attachments/assets/843fbbd4-7216-4588-b2c9-4f9ab322475b"/>
     <br>
     <br>
     <p align="center">
