@@ -21,7 +21,7 @@
 </div>
 
 <p align="center">
-  she◞𓈒 ݂her 𓏲 ˚¦ ͜͝ | ͜͝ . 
+  👓◞𓈒 ݂008 𓏲 ˚¦ ͜͝ | ͜͝ . 
 </p>
 
 <div align="center">
