@@ -11,7 +11,7 @@
 <p align="center">
 <img width=540 height=6 src="https://github.com/user-attachments/assets/843fbbd4-7216-4588-b2c9-4f9ab322475b"/>
 <p align="center">
-◟ ͜𓏼˚̣̣̣◟  『<span style="color:#50A6CE;">𝙰𝚉𝙼𝚄𝚁𝙴𝙻</span>』 ֺ ໒꒱۪
+◟ ͜𓏼˚̣̣̣◟  『$\color{#50A6CE}{\text{𝙰𝚉𝙼𝚄𝚁𝙴𝙻}}$』 ֺ ໒꒱۪
 </p>
 <p align=center>
 
@@ -20,7 +20,7 @@
 she◞𓈒 ݂her 𓏲 ˚¦ ͜͝ | ͜͝ . 
 </p>
 <p align=center>
-˚̣̣꒰ ͜͝ ݃ ݁ ͜͝ 𓐇 ͡  <span style="color:#50A6CE;">chi̲n̲a̲</span> ⁠ֺ  🌀 <span style="color:#50A6CE;">2.24</span>
+˚̣̣꒰ ͜͝ ݃ ݁ ͜͝ 𓐇 ͡  $\color{#50A6CE}{\text{chi̲n̲a̲}}$ ⁠ֺ  🌀 $\color{#50A6CE}{\text{2.24}}$
 </p>
 <div align="center">
 
