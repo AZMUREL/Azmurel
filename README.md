@@ -26,7 +26,7 @@
 
 <div align="center">
 
-˚̣̣꒰ ͜͝ ݃ ݁ ͜͝ 𓐇 ͡  $\color{#0482EF}{\text{china}}$ ⁠ֺ 🌀 $\color{#0482EF}{\text{2.24}}$
+˚̣̣꒰ ͜͝ ݃ ݁ ͜͝ 𓐇 ͡  $\color{#0482EF}{\text{2.24}}$ ⁠ֺ 🌀 $\color{#0482EF}{\text{china}}$
 
 </div>
 
