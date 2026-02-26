@@ -1,5 +1,5 @@
 <p align=center>
-<img width=540 height=6 src="https://github.com/user-attachments/assets/53fa9cea-e091-45e6-95d9-a0373590fea9"/>
+<img width=540 height=6 src="https://raw.githubusercontent.com/donnan34/1/3cf9f1580e0b3c11cea9ba1d1f9d8bc3b29af6ca/bluedivider.gif"/>
 </p>
 
 <p align=center>
@@ -37,7 +37,7 @@ she◞𓈒 ݂her 𓏲 ˚¦ ͜͝ | ͜͝ .
 <img width=500 height=281 src="https://raw.githubusercontent.com/donnan34/1/0b7a5d51aca6d34caeee0f7027c032c955eb9d22/hellsing-ultimate-alexander-anders1on-ezgif.gif"/>
 <p align="center">
   <p align="center">
-<img width=540 height=6 src="https://github.com/user-attachments/assets/53fa9cea-e091-45e6-95d9-a0373590fea9"/>
+<img width=540 height=6 src="https://raw.githubusercontent.com/donnan34/1/3cf9f1580e0b3c11cea9ba1d1f9d8bc3b29af6ca/bluedivider.gif"/>
     <br>
     <br>
     <p align="center">
